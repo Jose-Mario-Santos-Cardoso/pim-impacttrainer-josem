@@ -37,3 +37,8 @@ E não se esqueça:
 No final das contas, a única rivalidade que realmente importa é a sua busca incessante por conhecimento e aperfeiçoamento. Continue aprendendo, evoluindo e se tornando um programador cada vez mais completo.
 
 O futuro da programação está em suas mãos!
+
+Saiba utilizar cada uma ferramenta, pondo a prova seus conhecimentos e capacidades na realização de novos desafios/projetos. Continue aprendendo, pois, para cada parte historia.. tem um projeto!Saiba utilizar cada uma ferramenta, pondo a prova seus conhecimentos e capacidades na realização de novos desafios/projetos. Continue aprendendo, pois, para cada parte historia.. tem um projeto!
+
+
+
